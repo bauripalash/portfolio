@@ -1,5 +1,3 @@
-## Welcome to My Portfolio
+## Resume of Palash Bauri
 
-Here's my portfolio
-
-# Work in Progress
+[**{Download or View PDF}**](https://www.dropbox.com/s/29jodmvnrwll6ve/Resume-Palash-Bauri.pdf?dl=0)
